@@ -23,6 +23,6 @@
 ## 套餐七
 永久稳定ㅤ究极性价比，300CNY/永久套餐, 无流量限制 ，加密隧道，解锁流媒体 速度良好
 
-## 如果腾讯QQ群冻结请加新群 249323401
+## 如果腾讯QQ群冻结请加新群
 <b><a href="http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401
-">点击直接加入QQ群249323401</a>
+"><img src="https://img.dalao.pro/file/05765c41bc7ac28d37456.png" />点击直接加入QQ群249323401</a>

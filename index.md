@@ -1,3 +1,11 @@
+---
+layout: default
+title: 稳定翻墙机场
+---
+
+<!-- 添加网站图标链接 -->
+<link rel="icon" type="image/x-icon" href="path/to/your/favicon.ico">
+
 # 稳定翻墙机场
 
 ## 价目表

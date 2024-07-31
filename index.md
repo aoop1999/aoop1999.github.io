@@ -24,5 +24,5 @@
 永久稳定ㅤ究极性价比，400CNY/永久套餐, 无流量限制 ，加密隧道，解锁流媒体 速度良好
 
 ## 如果腾讯QQ群冻结请加新群
-<img src="https://img.dalao.pro/file/05765c41bc7ac28d37456.png" /> <b><a href="http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401
+<img src="https://image.dooo.ng/c/2024/08/01/66aab141da200.webp" /> <b><a href="http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401
 ">点击直接加入QQ群249323401</a>

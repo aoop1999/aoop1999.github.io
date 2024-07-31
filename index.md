@@ -39,6 +39,4 @@
 
 ## 如果腾讯QQ群被冻结，请加新群
 
-![QQ群二维码](https://image.dooo.ng/c/2024/08/01/66aab141da200.webp)
-
-**[点击直接加入QQ群 249323401](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401)**
+![QQ群二维码](https://image.dooo.ng/c/2024/08/01/66aab141da200.webp)**[点击直接加入QQ群 249323401](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401)**

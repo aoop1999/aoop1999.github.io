@@ -38,4 +38,4 @@
 - **特点：** 限单台设备限制使用,无时间限制,请合理使用,速度良好
 ## 如果QQ群被冻结，点击下发加入新群
 
-![QQ群二维码](https://image.dooo.ng/c/2024/08/01/66aab141da200.webp)**[点击直接加入QQ群 249323401](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401)**
+![QQ群二维码](https://sola.gtimg.cn/aoi/sola/20210118201807_hzF9zYwEBj.png)**[点击直接加入QQ群 249323401](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401)**

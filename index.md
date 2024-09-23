@@ -33,9 +33,14 @@
 - **特点：** 无速度保证，速度可能有点慢,心急劝退
 
 ### 套餐七
-- **价格：** 500 CNY（永久套餐）
+- **价格：** 500 CNY
 - **流量：** 永久 5T 流量
-- **特点：** 无时间限制，直到流量用完，轻度用户福音
+- **特点：** 不限时间，限制流量，轻度用户福音
+
+### 套餐八
+- **价格：** 1000 CNY（永久套餐）
+- **流量：** 无流量限制
+- **特点：** 限制单台设备使用，无时间限制，无流量限制
 ## 如果QQ群被冻结，点击下发加入新群
 
 ![QQ群二维码](https://sola.gtimg.cn/aoi/sola/20210118201807_hzF9zYwEBj.png)**[点击直接加入QQ群 249323401](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=EtzBGivq-ki-vu8UYOuTA4VNuJcwasqO&authKey=wUI9lNFz5KpErW%2BWcrkg449KjVXGWrUEFWewcN2i4fS3cWHZj7ZLLNcxQMv11ySg&noverify=0&group_code=249323401)**
